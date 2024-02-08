@@ -1,5 +1,5 @@
 # This is the MathGroup 582
-you are free to contact me
+Try and get me back
 email: ebenezer.acquah144@gmail.com
 iThis is the new chat here
 - Peace
