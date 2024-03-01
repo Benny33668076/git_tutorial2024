@@ -8,3 +8,4 @@ This is the new chat here
 - Joy
 - Love
 - grace
+- Blessing
